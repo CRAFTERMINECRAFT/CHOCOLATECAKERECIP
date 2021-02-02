@@ -1,0 +1,1 @@
+Ingredients 1 cup butter 3/4 cup white sugar 3/4 cup brown sugar 2 large eggs 2 teaspoons vanilla 2 cups flour 2/3 cup cocoa 1 teaspoon baking soda 1/4 teaspoon salt one 12-13 ounce package of Mint Chocolate Chips
